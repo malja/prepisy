@@ -7,13 +7,13 @@ První volání po české škole ve Vrchlabí datuje se z let 1890. V r. 1900 b
 228 žáků českých. R. 1907 prodávána byla Ústř. maticí školskou C.K. zem. škol radě žádost, o zřízení školy. Tím 
 okamžikem počíná dlouhý a vleklý boj o českou školu ve Vrchlabí.
 
-Komise C.K. okr. šk. rady ve Vrchlabí nařídila ve vyhlédnutách místnostech v domě Nár. jednoty severočeské č. 930
-různé úpravy a tak došlo Ústřední maticí školskou rozhodnutí C.K zemské šk. rady ze dne XI. 1907 č. 3145, jímž povoluje
+Komise C.K. okr. šk. rady ve Vrchlabí nařídila ve vyhlédnutých místnostech v domě Nár. jednoty severočeské č. 930
+různé úpravy, a tak došlo Ústřední maticí školskou rozhodnutí C.K zemské šk. rady ze dne XI. 1907 č. 3145, jímž povoluje
 se zřízení soukromé školy v místnostech vyhlédnutých pod tou podmínkou, když veškeré úpravy provedeny budou dle nařízení
-Komise C.K. okr. šk. rady. Současně určeno, že "do učebny přijíati lze pouze 98 žáků, pokud v místnosti učebny strop
-přiměřeně zvýšen nebude". Na to do Vrchlabí dosazen byl říd. uč. p. Tomáš Flaška z Prapořiště, aby za jeho vedení a
+Komise C.K. okr. šk. rady. Současně určeno, že "do učebny přijati lze pouze 98 žáků, pokud v místnosti učebny strop
+přiměřeně zvýšen nebude". Na to do Vrchlabí dosazen byl řád. uč. p. Tomáš Flaška z Prapořiště, aby za jeho vedení a
 dozoru provedeny byly nařízené adaptace. Pro odpor obecního úřadu, který do věci vmísil se jako úřad stavební, nebylo
-však možno adaptace ukončiti. Zasloužilý říd. uč. pan Tomáš Flaška jsa churav již před nastoupením ve Vrchlabí, zemřel
+však možno adaptace ukončiti. Zasloužilý řád. uč. pan Tomáš Flaška jsa churav již před nastoupením ve Vrchlabí, zemřel
 30. dubna 1909 vysílen prací školskou a těžkým životem matičního učitele. Čest budiž jeho světlé památce! Pochován jest
 na zdejším hřbitově.
 
@@ -22,27 +22,27 @@ Severočeská a Ústř. Matice Školská přivésti místnosti školní do žád
 Vrchlabí spr. školy p. an Hojsák, který však po 9 měsících pobytu ve Vrchlabí za nezměněné situace opustil. Teprve 1.
 ledna 1913 počalo se za vedení nově ustanoveného spr. školy R. Turky znovu s úpravami místností a po různých překážkách
 ze strany obecního úřadu docíleno v dubnu 1913 takové úpravy šk. místností, že možno bylo žádati C.K. okresní školní
-radu, aby vydala ohledávací komisi a vydala povolení k oteření školy. Po mnohých urgencích konala se Kolaudační komise
-za neoprávněnné účasti zdejšího starosty dr. Schrimpla. Ústřední Matici Školskou zastupoval správce školy. Po dlouhém
+radu, aby vydala ohledávací komisi a vydala povolení k otevření školy. Po mnohých urgencích konala se Kolaudační komise
+za neoprávněné účasti zdejšího starosty dr. Schrimpla. Ústřední Matici Školskou zastupoval správce školy. Po dlouhém
 jednání nařídila komise nepatrnou úpravu ve školních záchodech a technický znalec prohlásil, že po provedení této 
-úpravy nelze činiti námitek proti používání místnosti k účelům školním. Zmíněná úprava vykonnána a tak vydala C.K. 
+úpravy nelze činiti námitek proti používání místnosti k účelům školním. Zmíněná úprava vykonána a tak vydala C.K. 
 zem. šk. rada povolení K otevření školy (č. III. A885/2 a i 1913 č.z.š.r. 28.889 ze dne 23. května 19.13)
 
 Správce školy předložil spis výnosu C.K. okr. šk. radě a současně oznámil, že školní vyučování zahajuje se v pondělí 
 dne 9. června 1913.
 
 Do školy přihlásilo se hned 56 žáků, z nichž přijato býti mohlo toliko 38. Po zahájení vyučování hleděla obec nově
-otevřenou školu znemožniti. Nařídila stavební komise a marně hledala naíti zákonnou příčinu, aby školní místnosti mohla
-uzavříti. Kdyz v tomto směru nemohla ničeho učiniti, chopila se nezákonností a nařídila uzavření a zapečetění školních
+otevřenou školu znemožniti. Nařídila stavební komise a marně hledala najít zákonnou příčinu, aby školní místnosti mohla
+uzavříti. Když v tomto směru nemohla ničeho učiniti, chopila se nezákonností a nařídila uzavření a zapečetění školních
 záchodů dne 7. VII. 1913 a dne 9. VII. 1913 školní učebny. Školní děti musily toho dne o 9 hod. odpoledne učebnu
 opustiti. Stalo se tak za nejvýš vyrušujících výjevů a zoufalého nářku dětí. Zvůle a násilí zvítězilo dočasně nad
 právem. Proti nezákonným nařízením a opatřením obce podal spr. školy R Turka, jako plnomocník majitele
-domu _ a požádán byl starosta Ú. M. škol. slovutný pan C.K. vládní rada PhDr. Jíndřich Metelka, aby na příslušných
+domu _ a požádán byl starosta Ú. M. škol. slovutný pan C.K. vládní rada PhDr. Jindřich Metelka, aby na příslušných
 místech úředních domáhal se zrušení nezákonných opatření obce. 
 
 Čeští žáci zůstali bez vyučování. Stav tento trval až do 29. XI. 1913 a k 38 žákům ze šk. roku 1912/13 přibylo nových
-38 žáků přihlášených a přijatých po prázdniných do školy, takže celkem 76 bylo bez veškerého vyučování. 56 žáků do 
-školy se hlásících pro nedostatek místa odkázano býti musilo do veř. škol německých.
+38 žáků přihlášených a přijatých po prázdninách do školy, takže celkem 76 bylo bez veškerého vyučování. 56 žáků do 
+školy se hlásících pro nedostatek místa odkázáno býti musilo do veř. škol německých.
 
 --- Konec strany 2
 
@@ -50,8 +50,8 @@ místech úředních domáhal se zrušení nezákonných opatření obce.
 
 O podaných rekursech rozhodlo dne 21. října 1913 C.K. okr. hejtmanství, zrušilo nařízení a opatření obce v příčině
 zapečetění učebny a nařídilo otevření její. Uzavření a zapečetění záchodů povolených a k užívání C.K. okr. šk. radou
-schválených přivolilo. Opatřeny proto provisorně pro školu potřebné záchody soukromé a když doško k povolení k jejich
-používání škol. dětmi zahájeno polodenní vyučovánní dne 29. listopadu 1913.
+schválených přivolilo. Opatřeny proto provisorně pro školu potřebné záchody soukromé a když došlo k povolení k jejich
+používání škol. dětmi zahájeno polodenní vyučování dne 29. listopadu 1913.
 
 ## Učitelský sbor
 
@@ -60,26 +60,26 @@ Předlic, která ujala se vyučování dne 5. prosince 1913.
 
 ## Organisace školy
 
-Dle povolení C.K. zem. šk. rady organizována škola jako jednotřídka s dílným (++, strana 3) vyučováním. Skupinna nižší
-vyučována jest odpoledne sl. Fr. Patočkovou a čítá 15 chlapců, 23 dívek. Skupinna vyšší vyučována jest dopoledny 
+Dle povolení C.K. zem. šk. rady organizována škola jako jednotřídka s dílným (++, strana 3) vyučováním. Skupina nižší
+vyučována jest odpoledne sl. Fr. Patočkovou a čítá 15 chlapců, 23 dívek. Skupina vyšší vyučována jest dopoledny 
 spr. šk. R Turkou a čítá 13 chlapců a 25 dívek. Náboženství ř. katol. vyučuje spr. školy R. Turka, náboženství evang.
 p. farář Trojan z Valteřic. Ženským ručním pracím učí sl. F. Patočková.
 
 ## Důležitější události
 
 V příležitosti prvého svého zasedání v C.K. okr. šk. radě ve Vrchlabí navštívil dne VI. 1913 místnosti školní C.K. okr.
-šk. insp. pan Frant. Bažant z Jilemnice. V době zapečetění školy byla třikrát vytlučena neznýmimi pacahteli okna učebny.
+šk. insp. pan Frant. Bažant z Jilemnice. V době zapečetění školy byla třikrát vytlučena neznámými pachateli okna učebny.
 
 ## Oslava jmenin J. Veličenstva
 
 Dne 18. srpna 1913 vyzdobena školní budova praporem barev říšských a praporem barev zemských. na rozkaz úřadujícího 
 komisaře C.K. okr. hejtmanství Jana Kilchesa musil býti prapor zemských barev sejmut. K příležitosti ve věci té podané
-rozhodlo C.K. místodržitelství, že na příště povinno jest C.K. okr. hejtmanství prpopor barev zemských chrániti.
+rozhodlo C.K. místodržitelství, že na příště povinno jest C.K. okr. hejtmanství prapopor barev zemských chrániti.
 
 ## Dobrovolníci školy
 
 V prvé řadě jest to Ústř. Matice Školská, která školu zřídila a svým nákladem vydržuje. Odbor Ú. M. Škol. v Jilemnici
-zakoupil fysikální pomůcky, dám. odb. Nár. Jedn. Severočeské zakoupil obrazy přirodopisné.
+zakoupil fysikální pomůcky, dám. odb. Nár. Jedn. Severočeské zakoupil obrazy přírodopisné.
 
 **Vánoční nadílku** v ceně 620 K za pomoci různých dobrovolníků opatřil m. odb. Nár. Jednoty Severočeské ve Vrchlabí.
 Zejména přispěli: 
@@ -106,7 +106,7 @@ František Bažant a projevil rovněž spokojenost.
 
 ## Změna v učitelském sboru
 
-Dne 13. června přesazena byla uč. sl. Fr. patočková na školu Ú. M.  Šk. do Postoprt. Na místo její dosazen uč. p. 
+Dne 13. června přesazena byla uč. sl. Fr. Patočková na školu Ú. M.  Šk. do Postoprt. Na místo její dosazen uč. p. 
 Vojtěch Štěpánek z Liběchova.
 
 ## Smrt následníka trůnu
@@ -114,18 +114,18 @@ Vojtěch Štěpánek z Liběchova.
 Smrt následníka trůnu pana arciknížete Františka Ferdinanda a choti jeho, kteří dne 28. 11. 1914 úkladně zastřeleni byli
 v Sarajevu, vyvolala nejhlubší účast. Žactvo přítomno bylo v zdejším chrámu smutečním bohoslužbám.
 
-## Škoní zprávy
+## Školní zprávy
 
 Školní zprávy rozdány žactvu v šk. r. 1913/14. Třikrále a 70 15. února 1914, 1. května 1914 a 14. červenec 1914, 
 kteréhožto dne také ukončen školní rok.
 
 ## Školní výlety
 
-Dne 12. července 1914 účastnili se všichni žáci Národní slavnosti v Jílemnici.
+Dne 12. července 1914 účastnili se všichni žáci Národní slavnosti v Jilemnici.
 
 --- Konec strany 4
 
-Pohoštěni byli odborem N. J. Severočeské v Jílemnici. Vyšší skupina žáků podnikla dne 13. července 1914 za vedení uč.
+Pohoštěni byli odborem N. J. Severočeské v Jilemnici. Vyšší skupina žáků podnikla dne 13. července 1914 za vedení uč.
 Štěpánka výlet do Prachovských skal. Na úhradu výloh přispěl ú. v. N. J. S. v Praze K 59,88 a příznivci školy v 
 Jilemnici K 15. Děti byly vzorně pohoštěny dám. odb. N. J. S. v Jičíně a ochotným průvodčím ve skalách byl p. prof.
 Vesecký.
@@ -213,7 +213,7 @@ Tragická události v Sarajevě měla v zápěti nedozírné následky. Mocnář
 poněvadž zjistilo se, že kořeny spiknutí sarajevského sahaly do Srbska. Když nedostalo se mocnářství našemu
 uspokojivého prohlášení, vypovězena válka a proti Srbsku podniknutí trestná výprava.
 
-Následkem toho bylo další vypovídání válek mezi mocnářstvím nnaším a jinými státy. To spadá však do oboru politické
+Následkem toho bylo další vypovídání válek mezi mocnářstvím naším a jinými státy. To spadá však do oboru politické
 kroniky a my omezujeme se na líčení života a událostí doby té v našem městě. Mobilizační dny červencové změnily i zde
 celý život města a naší české menšiny. Hned při prvé mobilisaci odešla sta mužů uposlechnuvších rozkazu J. Veličenstva
 ku svým praporům. Z naší menšiny odešli tito lidé:
@@ -221,16 +221,16 @@ ku svým praporům. Z naší menšiny odešli tito lidé:
 - Josef Šumpik, místopředseda m. o. N. J. S. a kontrolor konsumního spolku,
 - Antonín Kerhard, jednatel m. o. N. J. S. (zemřel následkem útrap v Hidži (++, strana 6) v lednu 1915),
 - Antonín Švindl, pokladník m. o. N. J. S. a člen dozorčí rady konsumního spolku,
-- Frant. Doležal, člen výboru m. o. N. J. S. a člen dozorčí rady konsumního spoku,
+- Frant. Doležal, člen výboru m. o. N. J. S. a člen dozorčí rady konsumního spolku,
 - Václav Holman, člen výboru m. o . N. J. S. a pokladník konsumního spolku a j. (++, strana 6).
 
-Z učitelstva matičního povoláno k vojenské službě 81 osob. Při pozdějších prohlídkách domovních uznáno za spůsobilé
+Z učitelstva matičního povoláno k vojenské službě 81 osob. Při pozdějších prohlídkách domovních uznáno za způsobilé
 ke službě ve zbrani:
 
 - Vojtěch Štěpánek, býv. zdejší učitel, tř. spr. školy v Hoř. Dušnici,
 - Čeněk Kouba, člen výboru m. odb. H. J. S. a předseda dozorčí rady konsumního spolku,
-- Jan jahelka, člen dozorčí rady konsumního spoku,
-- Gustav Beneš,  člen výboru m. o . H. J. S. a člen dozorčí rady konsumního spolku,
+- Jan jahelka, člen dozorčí rady konsumního spolku,
+- Gustav Beneš, člen výboru m. o . H. J. S. a člen dozorčí rady konsumního spolku,
 - Jaroslav Borůvka, člen výboru m. o. H. J. S. a člen dozorčí rady konsumního spolku a j. v. 
 
 Do všech těchto řádných a své povinnosti dbalých podávána bude ještě zpráva po ukončení války. 
@@ -243,7 +243,7 @@ spojenců naší říše.
 
 Zahájen v nejistotě a pochybnostech, zda h. Ú. M. Šk. bude schopna vydržovat své školy. Dík rozvaze výboru matričního
 a učitelstva, které slouží dále a věrně a poctivě za služné redukované až o jednu třetinu, podařilo se zahájiti na
-všech školách vyučování. Avšak i tu vyditelny jsou stopy války. 
+všech školách vyučování. Avšak i tu viditelny jsou stopy války. 
 
 ## Změna v uč. sboru
 
@@ -260,17 +260,17 @@ spolkového na bojiště přibylo správci školy velmi mnoho práce.
 Místní odbor Nár. Jednoty Severočeské, jehož předsedou jest správce školy, převzal hned po vypuknutí války starost o
 ženy a děti k vojenské službě povolaných.  Za tím účelem pracovány (++, strana 6) žádosti o státní vyživovací příspěvek,
 intervenováno u okr. vyživovací komise, sbírán ??? (++, strana 6) papír na výrobu papírových vložek do obuvi vojínů,
-vypracovány žádosti o pense pro vdovy po padlých vojínech, podporovány finančně rodiny Krebsova a valáškova a postaráno
+vypracovány žádosti o pense pro vdovy po padlých vojínech, podporovány finančně rodiny Krebsova a Valáškova a postaráno
 o to, aby dostalo se matkám podpory pro sirotky od České zemské komise pro ochranu dětí a péče o mládež. V některých
 dnech tísnily se přímo ve školní kanceláři ženy přicházející s prosbou o poradu, vyhotovení žádosti a pod. Všem bylo
 pohotně vyhověno a vždy s úspěchem v jejich prospěch zakročeno.
 
 --- Konec strany 6
 
-Nicméně starostí a práce vyžaádala si v tomto šk. roce **vánoční nadílka**. Oproti roku předcházejícímu sešlo se velmi
-málo pěněžitých příspěvků. Bez pomoci dáms. a mužs. odboru N. J. S. v Jílemnici, ústř. výboru N. J. S v Praze a 
+Nicméně starostí a práce vyžádala si v tomto šk. roce **vánoční nadílka**. Oproti roku předcházejícímu sešlo se velmi
+málo peněžitých příspěvků. Bez pomoci dáms. a mužs. odboru N. J. S. v Jilemnici, ústř. výboru N. J. S v Praze a 
 dámského spolku "Světlá" v Písku nebývalo by možno ošatiti ani sirotky. Pomoci bylo však potřebí vydatnější než v roce
-minulém. Jsouť rodičové žáků zdejší školy až na mizivou výjimku úplně nemajetní tovární dělnící, kteří právě v době 
+minulém. Jsouť rodičové žáků zdejší školy až na mizivou výjimku úplně nemajetní tovární dělníci, kteří právě v době 
 zimní byli bez zaměstnání. Zásluhou šlechetných dárců bylo však pomoženo všem.
 
 Poděleno 62 dětí hotovými obleky, látkami, čepicemi, šály, punčochami a různým prádlem.
@@ -279,19 +279,19 @@ Poděleno 62 dětí hotovými obleky, látkami, čepicemi, šály, punčochami a
 
 Následkem vyhladovovacícho plánu našich nepřátel pociťován byl i v našem městě často citelný nedostatek potravin,
 zejména mouky, chleba a rýže. V této době osvědčil se velmi dobře **český konsumní spolek**, jehož předsedou jest
-správce školy. Pro členstvo spoku bylo vždy přiměřené množství potravin po ruce a to za cenu značně nižší než v
-obchodech jiných . Zaznamenáváme, že všichni funkcionáři spolku konali všekeré práce bez odměny. Tím také se stalo,
+správce školy. Pro členstvo spolku bylo vždy přiměřené množství potravin po ruce a to za cenu značně nižší než v
+obchodech jiných. Zaznamenáváme, že všichni funkcionáři spolku konali veškeré práce bez odměny. Tím také se stalo,
 že mohla být chudému členstvu v této těžké době vyplacena procenta z dividenda a zaslány dary vojákům v poli.
 
 ## Příznivci školy
 
-Vedle stále práce o naši školu projevil slov. p. C.K. okkr. inspektor Fr. Bažant přízeň svoji i tím, že vymohl od 
+Vedle stále práce o naši školu projevil slov. p. C.K. okr. inspektor Fr. Bažant přízeň svoji i tím, že vymohl od 
 vys. C.K. ministerstva kultury a vyučování dar: Veselého *"Ozdobné tvary"* a sám zaslal 7 brožur "Lidových rozprav
 lékařských".
 
 **Sdružené spolky ve Branné** poskytly obnos K 100 na úpravu místnosti pro druhou učebnu.
 
-**M. obd. Ú. M. Šk. v Jílemnici** pořídil svým nákladem dvojitou tabuli posunovací pro tuto třídu druhou.
+**M. obd. Ú. M. Šk. v Jilemnici** pořídil svým nákladem dvojitou tabuli posunovací pro tuto třídu druhou.
 
 **Pan Frant. Šida ve Vrchlabí** daroval škole pěknou sbírku různých dřev.
 
@@ -303,32 +303,32 @@ lékařských".
 
 ## Vyučování náboženství
 
-Biskupská konsistoř v Hradci Králové ustanovvila v souhlase s Ú. M. Škol., aby na zdejší škole vyučoval od 15. 2.
+Biskupská konsistoř v Hradci Králové ustanovila v souhlase s Ú. M. Škol., aby na zdejší škole vyučoval od 15. 2.
 1915 katol. náboženství brannský kaplan **p. Rudolf Frieder**. Náboženství evang. (anglo. (++, strana 10) vyznání) 
 vyučuje p. farář Al. Trojan z Valteřic.
 
 ## Oslava jmenin a narozenin J. Veličenstva
 
-Ve dnech 18. srpna a 4. října 1914 ozdobena byla budova školní prapory v barvách zemských a říškých. Dne 4. října byla
+Ve dnech 18. srpna a 4. října 1914 ozdobena byla budova školní prapory v barvách zemských a říšských. Dne 4. října byla
 školní mládež účastna slavnostních bohoslužeb.
 
 ## Nepřátelské projevy proti škole
 
 Nelze mlčením pominouti, že i v těchto přetěžkých a vážných dobách, kdy všichni národové říše svorně bojují za císaře
-a vlast, vybouchla u některých zdějších příslušníků německého národa protičeská zášť, která vedle častého spílání
+a vlast, vybouchla u některých zdejších příslušníků německého národa protičeská zášť, která vedle častého spílání
 Čechům před školní budovou projevila se zvláště odsouzení hodné dne 24. dubna 1615, kdy vytlučeno bylo 10 kameny v 
 učebně 16 okenních tabulí.
 
 ## Pomocná akce pro vojsko
 
 Žactvo zdejší školy přispělo též "Červenému kříži" v jeho snaze o vojsko v poli. Ze sebraného novinového papíru
-zkotoveno bylo 1600 párů vložek do obuci a upleteno 20 párů nátepniček.
+zhotoveno bylo 1600 párů vložek do obuvi a upleteno 20 párů nátepniček.
 
 Nemožno bylo však podniknouti pro chudobu a nezaměstnanost zdejších Čechů peněžní sbírku.
 
 ## Inspekce
 
-Dne 17. V. 1915 navštívil za účelem inspekce zdejší školu pan C.K. okr. šk. insp. Frant. Bažant. vyučování byl přitomen
+Dne 17. V. 1915 navštívil za účelem inspekce zdejší školu pan C.K. okr. šk. insp. Frant. Bažant. vyučování byl přítomen
 od půl desáté do půl dvanácté dopoledne a odpoledne od půl druhé do tři. Posudek jeho o škole i prospěchu žactva byl
 příznivý.
 
@@ -336,7 +336,7 @@ příznivý.
 
 Zpětné dobytí Přemyšlu i Lvova oslaveno bylo na zdejší škole vyvěšením praporů. Událost tato byla dětem oznámena
 přiměřeným způsobem. V slavnostní tyto dny byla však budova české školy předmětem prostých výjevů se strany části
-německého obyvatelstva. Před budovou bylo Čechům spíláno, správci školy nadáváno, vyhrozováno, že patří na šibenici
+německého obyvatelstva. Před budovou bylo Čechům spíláno, správci školy nadáváno, vyhrožováno, že patří na šibenici
 jako mnoho jiných Čechů - a při tom všem zpívána hymna rakouských národů. Zejména první večer po dobytí Lvova byl velmi
 bouřlivý, trvať demonstrace skoro do půl noci.
 
@@ -345,7 +345,7 @@ bouřlivý, trvať demonstrace skoro do půl noci.
 ## Ukončení školního roku
 
 Školní rok ukončen dne 13. července 1915. Žactvo bylo upozorněno, aby v prázdninách chovalo se slušně. Dospělejšími
-žáci vyzváni, aby pomáhali pracovat všeude tam, kde jeviti se toho bude potřeba. Zvláště napomenuty ty děti, jejichž
+žáci vyzváni, aby pomáhali pracovat všude tam, kde jeviti se toho bude potřeba. Zvláště napomenuty ty děti, jejichž
 otcové jsou na bojišti. 
 
 ## Školní výlet
@@ -355,19 +355,19 @@ občerstvení. Nebylo možno něco koupiti.
 
 ## Vojenská povinnost správce školy
 
-Při domobraneckých prohlídkách 8. VI. konaných uznan spr. školy R. Turka způsobilým k vojenské službě. 16. VIII.
-nastoupil jako jednoroční dobrovolník k 18. p. pl., odkud po rozkazu C.K. ministerstva výlky přeložn byl k maďarskému
+Při domobraneckých prohlídkách 8. VI. konaných uznán spr. školy R. Turka způsobilým k vojenské službě. 16. VIII.
+nastoupil jako jednoroční dobrovolník k 18. p. pl., odkud po rozkazu C.K. ministerstva války přeložen byl k maďarskému
 p. pl. č. 82 v Székelyudvarhely v Sedmihradech.
 
 ## Posudek o žactvu
 
-Prospěch žactva v roce uplynulém byl uspokojivý. Přičinou toho jest malý počet vyučovacích hodin. Píle žactva byla
-náležitá. Učili se všichni a pochváliti jest zručnost rodičův, kteří s malýmim žáky skoro ve všech rodinách probírané
+Prospěch žactva v roce uplynulém byl uspokojivý. Příčinou toho jest malý počet vyučovacích hodin. Píle žactva byla
+náležitá. Učili se všichni a pochváliti jest zručnost rodičův, kteří s malými žáky skoro ve všech rodinách probírané
 učivo procvičovali. Mravy žáků byly chvalitebné. Známku 2. stupně bylo nutno udělit za celý rok jen ve 2 případech.
 
 ## Zdravotní stav žactva
 
-Nebyl tak přiznivý jako v létech minulých. Hojně žáků onemocnělo také dočasně po očkování.
+Nebyl tak příznivý jako v létech minulých. Hojně žáků onemocnělo také dočasně po očkování.
 
 ## Školní docházka žactva ve školním roce 1914/15
 
@@ -439,12 +439,12 @@ Započal dne 16. září s 65 žáky, jež rozděleni ve dvě skupiny:
 - nižší skupina má 17 chlapců a 20 dívek, celkem 37 žáků,
 - vyšší skupina má 9 chlapců a 19 dívek, celkem 28 žáků.
 
-během roku přistoupili 2 žáci a vvystoupilo 15. Z těchto děti dvou rodin počtem sedmi přešli do německé školy proto,
+během roku přistoupili 2 žáci a vystoupilo 15. Z těchto děti dvou rodin počtem sedmi přešli do německé školy proto,
 že matkám dostalo se od obce peněžité podpory i potravin.
 
 Školní rok ukončen s 52 žáky dne 15. července.
 
-K obvyklému napomnenutí ke slušnému chování a pilné práci o prázdninách bylo žákům znovu a důrazně připomenuto, by
+K obvyklému napomenutí ke slušnému chování a pilné práci o prázdninách bylo žákům znovu a důrazně připomenuto, by
 slušně a vlídně chovali se k válečným uprchlíkům.
 
 ## Vyučování
@@ -468,40 +468,224 @@ se s nimi.
 ## Vánoční nadílka
 
 Vánočních bylo všech 66 žáků poděleno obuví, šatstvem, a jinými dárky. Uspořádání nadílky největší zásluhy mají místní
-odbory N. J. Sč. v Jilemnici, dámský spolek Světlá v Písku, místní sbor N. J. Sč pro Vrchlabí.
+odbory N. J. Sč. v Jilemnici, dámský spolek Světlá v Písku, místní sbor N. J. Sč. pro Vrchlabí.
 
 ## Inspekce
 
-Dne 7. února 1916 navšivil školu C.K. okresní inspektor pan Alois Normut (++, strana 13). Přítomen byl vyučování
+Dne 7. února 1916 navštívil školu C.K. okresní inspektor pan Alois Normut (++, strana 13). Přítomen byl vyučování
 dopoledne i odpoledne, prohlédnuv práce žáků i úřední knihy, vyslovil se uspokojivě o stavu i vedení školy.
 
 ## Dary
 
 Po své návštěvě zaslal pan inspektor deset výtisků Matolinovy (++, strana 13) početnice pro první školní rok, po 
-jednom výtisku Slabikáře B a Popátek.
+jednom výtisku Slabikáře B a Poupátek.
 
 Sešity, tužky a bavlna darovány dámským spolkem "Světlá" v Písku, na zakoupení potřeb pro vyučování ručním pracím
 přispěl mimo to dámský odbor N. J. Sč. v Jilemnici a místní odbor N. J. Sč. ve Vrchlabí. Posledně (++, strana 13), 
-jmenovaný odbor zakoupil polovnu otopu pro třídu.
+jmenovaný odbor zakoupil polovinu otopu pro třídu.
 
 ## Pomocná akce
 
-V roce 1915-16 nebyllo možno zakoupit materiál potřebný k výrobě nátepniček, ponožek aj. pro vojsko v poli. U
+V roce 1915-16 nebylo možno zakoupit materiál potřebný k výrobě nátepniček, ponožek aj. pro vojsko v poli. U
 příležitosti týdne "Červ. kříže" uspořádána sbírka mezi chudičkými našimi žáky. 
 
 ## Patriotické projevy
 
-Úspěchy zbraní chrabé naší armády pozorně sledovýny a s radostnými pociti s žactvem sdíleny. Každé vítězství spojených
+Úspěchy zbraní chrabré naší armády pozorně sledovány a s radostnými pocity s žactvem sdíleny. Každé vítězství spojených
 našich vojsk bylo žákům přiměřeným způsobem oznámeno. Při těchto příležitostech byla vždy budova ozdobena prapory
 barev říšských a zemských. Rovněž tak ve dnech jmenin, narozenin a v jubilejní den Jeho Veličenstva, jakož i v den
 narozenin Jeho Veličenstva císaře Viléma II.
 
 ## Počet půldnů
 
-Ve školním roce 1915-16 blyo půldnů vůbec 13 724.
+Ve školním roce 1915-16 bylo půldnů vůbec 13 724.
 
 - nezameškaných 12 697 - 92,52 %,
 - zameškaných omluvených 982 - 7,16 %,
 - neomluvených 45 - 0,32 %
 
+## Pohyb žactva ve školním roce 1915 - 1916
+
+<table>
+    <tr>
+        <th cellspan="3">Skupina nižší</th>
+        <th cellspan="3">Skupina vyšší</th>
+    </tr>
+    <tr>
+        <td>Na začátku roku</td>
+        <td>17 hochů</td>
+        <td>20 děvčat</td>
+        <td>37 žáků</td>
+        <td>9 hochů</td>
+        <td>19 děvčat</td>
+        <td>28 žáků</td>
+    </tr>
+    <tr>
+        <td>Ve školním roce přistoupilo</td>
+        <td>-</td>
+        <td>1 děvče</td>
+        <td>1 žák</td>
+        <td>1 hoch</td>
+        <td>-</td>
+        <td>1 žák</td>
+    </tr>
+    <tr>
+        <td>Ve školním roce vystoupilo</td>
+        <td>3 hoši</td>
+        <td>6 děvčat</td>
+        <td>9 žáků</td>
+        <td>2 hoši</td>
+        <td>4 děvčata</td>
+        <td>6 žáků</td>
+    </tr>
+    <tr>
+        <td>Konec školního roku</td>
+        <td>14 hochů</td>
+        <td>15 děvčat</td>
+        <td>29 žáků</td>
+        <td>8 hochů</td>
+        <td>15 děvčat</td>
+        <td>23 žáků</td>
+    </tr>
+</table>
+
 > Patočková Františka, učitelka
+
+# Školní rok 1916/17
+
+Zahájen byl bohoslužbami dne 18. září 1916.
+
+## Počet školních dětí
+
+Do školy zapsáno bylo 68 dětí v věku školou povinném. Chlapců bylo 28, děvčat 40. 
+Dle bydliště bylo z Vrchlabí 55 dětí, z Harty 9, z Kunčic 4. Oproti počtu dětí na konci školního roku přibylo 16.
+
+## Agitace proti škole
+
+Agitace proti škole byla letošního roku slabší. Po rodinách českých obcházel ve svých dělnických domech továrník Josef 
+Petera a nutil rodiče, aby dětí neposílali do školy české. Počínání jeho působilo tím trapněji, že jsa vojákem, 
+agitoval ve vojenské uniformě. Nečestně počínal si i zdejší německý učitel Gustav Brath, který k agitaci zneužíval 
+všeobecných humánních zřízení (++, strana 19) a českým vdovám, které ??? (++, strana 19) děti v české škole, odpíral 
+předložiti žádosti o podporu z Válečného fondu vdov a sirotků po padlých vojácích.
+
+## Organisace školy
+
+Dosavadní dílná jednotřídka změněna na školu jednotřídní a zavedeno bylo polodenní vyučování. Změna tato oznámena C.K. školním úřadům a připomenuto, že jakmile poměry tomu dovolí a bude dostatek učitelských sil, škola rozšířena bude ve dvoutřídku. Nyní vyučování jsou žáci menších školních roků odpoledne, žáci vyšších školních roků dopoledne. 
+
+## Učitelský sbor
+
+Ve sboru učitelském nenastalo změny. Správce školy byl dle superarbitr. nálezu potvrzeného C.K. vojenským velitelstvím v ??? propuštěn z vojenské služby na trvalou dovolenou. Protože však jeho zdravotní stav byl nepříznivý, obdržel od Ú. M. Šk. dovolenou. 
+
+Na škole vyučovala všem předmětům učitelka slečna F. Patočková. Až do dne 10. IX. 1916 vedle správu školy. V měsíci říjnu však onemocněla a výbor Ú. M. Šk. dosadil na školu výpomocnou učitelku slečnu Zdenku Mužíkovou ???. Působila zde od 12. X. do 4. XI. 1916. Potom přesazena byla na školu Ú. M. Šk. do Libkovic u Duchcova.
+
+Správa školy ujal se správce školy dne 10. XII. 1916.
+
+Náboženství evangelické vyučuje pan farář Alois Trojan z Valteřic.
+
+## Kollaudace místnosti pro druhou učebnu 
+
+Dne 14. září 1916 byla komisionálně ohledána nová učebna v I. poskodí dosavadní školní budovy. Nařízeny byly některé menší úpravy v zařízení školních záchodů. Úpravy provedeny a dne ??? povoleno v nové učebně vyučovati.
+
+## Úmrtí Jeho Jasnosti Knížete Thuna
+
+Smrt Jeho Jasnosti knížete Františka Thuna, bývalého místodržitele Království českého vyvolala v českém národu zármutek všeobecný a hluboký. Zemřel muž v pravém slova smyslu spravedlivý a pracující až do poslední chvíle života na urovnání neutěšených poměrů v Království českém, které miloval láskou horoucí. Ve zdejší menšině české zvláště upřímně želeli jsme smrti Jasného páne. Za jeho místodržitelského úřadování otevřena byla naše česká škola. Čest budiž světlé památce Jeho!
+
+## Smrt ministerského předsedy
+
+Smrt ministerského předsedy hraběte Stürgkha, padlého rukou vražednou dne 28. X. způsobila zděšení mezi obyvatelstvem této říše i daleko za hranicemi. V těžké době odešel jeden z nejvýznamnějších státníků naší říše. Nástupcem jeho stal se dr. Koerber, který již před časem byl ministerským předsedou.
+
+## Zavedení elektrického světla
+
+Zavedení elektrického světla do místností školních stalo se minulostí v říjnu 1816, kdy nastal trvalý nedostatek petroleje. Náklad zřizovací hrazen byl částečně z příspěvků příznivců v Jilemnici, částečně ústředním výborem Národní Jednoty Severočeské a zaplaceno bylo za zařízení v učebně a školní kanceláři K 149,22. K obuom (++, strana 20) tomu přispěl Všeobecný konzumní spolek K 39,22.
+
+## Úmrtí Jeho Výsosti císaře Františka Josefa I. 21. XI. 1916
+
+Uprostřed příprav k slavnostem, které dne 2. prosince 1916 měly prokázati, jak všichni národové říše naší ctí a milují Nejjasnějšího našeho panovníka, uprostřed příprav k oslavám 68 jubilea panování císaře a krále Františka Josefa I., zalehla do všech končin mocnářství drtivá zpráva, že Nejjasnější panovník v úterý dne 21. listopadu 1916 po 9. hodině večerní vydechnul ušlechtilou duši. Nezměrný smutek zavládnul v každé obci obyvatele této říše. Všichni bez rozdílu, od dítěte až k starci proniknuti byli úctou a láskou k milovanému mocnáři. Skoro sedm plných desetiletí, bohatých plodnou činností směřující jedině a stále k povznesení říše a jejího obyvatelstva, strávil císař a král František Josef I. na trůně vznešených předků. K netušenému rozmachu hospodářskému a kulturnímu povznesla se za Jeho vlády ??? naše říše. S prozřetelností božskou nebylo popřáno tomuto knížeti míru, aby dočkal se vítězného ukončení války mu vnucení. Národové zdrceni bolestí truchlí nad ztrátou stařičkého mocnáře. Památka jeho nevymizí však ze srdcí, do nichž zapsal se hluboko a trvale.
+
+## Císař Karel I.
+
+Nejvyšší proklamací ze dne 21. listopadu 1916 oznámil dosavadní následník trůnu Jeho císařská Výsost pan arcivévoda Karel František Josef národům, že ujímá se vlády. Nový nás panovník císař Karel I. vzpomínaje v nejvyšší proklamaci nesmrtelných zásluh zemřelého císaře Františka Josefa I. a prokazuje dále s neochvějnou nadějí na vítězný konec války, k jehož uspíšení chce vše podniknouti, praví zlatá slova k národům:
+
+> Svým národům chci býti spravedlivým a láskyplným knížetem. Chci jejich ústavních práv a svobod vysoko si vážiti a rovnosti před právem bedlivě střežiti. Ustavičnou snahou mojí bude podporovati mravní i duševní dobro svých národů, chrániti svobodu i pořádek ve Svých státech, zabezpečovat všem údům společnosti ovoce poctivé práce.
+
+Proklamace vyvolala všude nejradostnější ozvuk. Český národ svými povolanými korporacemi (++, strana 21) vzdal nadšený hold Jeho Veličenstvu císaři Karlu I. a Jeho Výsosti císařovně Zitě. Ušlechtilá mysl a dobrotivé srce Nejjasnějších císařských manželů získaly již dávno lásky všech obyvatelů této říše. Nechť Prozřetelnosti zachová nám nejjasnější císařskou rodinu k požehnání na dobu nejdelší. Mír a štěstí ať provází panování Jejich!
+
+## Loajální projevy
+
+Žactvo zdejší školy přítomno bylo ve svátečních dnech dvakráte bohoslužbám za Jeho Veličenstva císaře Františka Josefa I. Zástupci zdejších spolků českých písemně projevili bol nad úmrtím císaře Františka Josefa I. C.K. okresnímu hejtmanství.
+
+## Vánoční nadílka
+
+Předsednictvo mužského odboru Národní Jednoty Severočeské zahájilo sbírku ve prospěch vánoční nadílky chudým žákům zdejší školy. Protože nebylo možno opatřiti všem chudým dětem obuv a šaty, zakoupeny byly v českém Konsumním spolku potraviny za 598 K a rozděleny do rodin tak, že na každé školní dítě připadalo K 10, na sirotky K 12.
+
+## Inspekce
+
+Kde 25. května 1917 prohlédl zdejší školu pan C.K. okresní školní inspektor František Bažant a projevil úplnou spokojenost nad prospěchem žactva, zařízením i správou školy.
+
+## Patriotické slavnosti a projevy
+
+Dne 17. IV. a 9. V. 1917 oslaveny byly narozeniny a jmeniny Jejího Veličenstva císařovny Zity. Školní mládež přítomna byla bohoslužbám. Význam slavnosti žákům byl objasněn.
+
+## Náboženská cvičení
+
+Dne 13. a 14. dubna 1917 byli žáci u zpovědi a přijímání.
+
+## Z činnosti učitelského sboru
+
+Správce školy staral se, aby čeští váleční sirotci převzati byli v ochranu České zemské komise pro péči o mládež. Snaha se zdařila. Komise vyplácí měsíčně na každého sirotka 6 K. Doposud pomoženo takto sirotkům z rodin Šmupikové (++, strana 22), Valáškové, Krebsové (++, strana 22), a Weissové. Činnost správce školy v tomto směru vztahovala se i na sirotky z matiční školy v Novém Světě.
+
+Dne 14. července 1917 jmenován byl správce školy Českou zemskou komisí pro ochranu dětí poručníkem z povolání v okresu vrchlabském.
+
+## Dobrovolníci školy
+
+Největším dobrovolníkem školy byl mužský odbor Národní Jednoty Severočeské a Dramatický kroužek odboru. Z výtěžků 
+divadelních představení a sbírek opatřoval hojně různé potřeby školní, opatřil nová kamna do učebny, podporoval rodiny 
+české a všude zažehnával bídu mezi dětmi, kde jevila se tato potřeba. Vzpomenouti sluší obětavé činnosti p. Františka 
+Stránského, který byl duší všech podniků zábavních. Po dobu války až do svého odchodu z Vrchlabí byl pokladníkem 
+mužského odboru Národní Jednoty Severočeské. Činnost jeho ve prospěch školy byla velmi úspěšná. Odchodem jeho ztrácí 
+naše menšina i školní mládež šlechetného pracovníka a ???.
+
+## Pomocná činnost školy
+
+Jako v minulých letech válečných, tak i tento pomáhal správce školy všem, kteří potřebovali rady a podpory. V 
+záležitostech podpory vypracoval v uplynulém roce 69 spisů, intervenoval u úřadů atd.
+
+## Narozeniny Jeho Veličenstva 
+
+Dne 17. srpna oslaveny věšením praporů na školní budově.
+
+## Statistika
+
+Školní rok 1916/17 začal se 18. září 1916 s 68 žáky - 28 chlapců a 40 děvčat.
+
+Během roku přistoupilo 7 žáků - 3 chlapci a 4 děvčata.
+
+Během roku vystoupilo 14 žáků - 5 chlapců a 9 děvčat.
+
+Rok ukončen 14. července 1917 s 61 žáky - 26 chlapců a 35 děvčat. 
+
+## Prospěch žactva
+
+Mnohé potíže zabraňovaly docílit normálního prospěchu u všech žáků. Na žáky starší přeneseno bylo v rodinách hojně 
+starostí s výživou, a tak návštěva školní ve skupině vyšší byla slabší. Tím i prospěch. Žáci skupiny nižší chodili do 
+školy velmi pilně a dosáhli zde prospěchu velmi slušného. Výborem Ú. M. Sč. po návrhu správce školy ocenil projevené 
+pochvaly úspěšnou činnost učitelce slečně Patočkové.
+
+Na konci roku byl prospěch klasifikován takto:
+
+| Skupina | Velmi dobře | Dobře | Dostatečně | Nedostatečně |
+|--|--|--|--|--|
+| Nižší | 11 | 14 | 7 | 3  |
+| Vyšší | 5 | 11 | 7 | 1, úlevy 2 |
+| Celkem| 16 | 25 | 14 | 4, úlevy 2 |
+
+## Školní docházka
+
+Půldní vůbec 13 974, nezameškáno 12 257 (87,72%), omluveno 1706 (12,20%), neomluveno 11 (0,07%). Školní rok ukončen 
+bohoslužbou 14. července 1917.
+
+> Ve Vrchlabí dne 18. srpna 1917 Robert ???
+
+
+
+
