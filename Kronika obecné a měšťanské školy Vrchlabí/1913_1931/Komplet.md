@@ -686,6 +686,52 @@ bohoslužbou 14. července 1917.
 
 > Ve Vrchlabí dne 18. srpna 1917 Robert ???
 
+# Školní rok 1917/18
 
+## Začátek školního roku
 
+Školní rok zahájen bohoslužbami dne 15. září 1917.
+
+## Počet žactva
+
+I tentokráte z něměckých kruhů působeno bylo na české matky, aby děti daly zapsati do škol něměckých. Surové toto počínání nemělo však zcela žádného výsledku. Do německé školy nepřešel ani jediný český žák. Naopak, celá řada českých dětí chodících do škol německých dostavila se k zápisu. Pro nedostatek místa nebylo však možo všecky přijmouti.
+
+Přijato bylo:
+
+Skupina nižší: 22 chlapců, 25 děvčat - celkem 47 dětí.
+Skupina vyšší: 19 chlapců, 24 děvčat - celkem 43 dětí. 
+
+V obou skupinách 90 dětí.
+
+## Organizace školy, učitelský sbor
+
+Protože školní úřady nevydaly povolení, aby mohlo býti vyučováno v II. učebně, zavedeno polodenní vyučování dle učebných osnov pro školy jednotřídní. Učitelský sbor zůstal nezměněn. Zdravotní stav řídícího učitele zlepšil se tak dalece, že mohl se ujmouti opět vyučování. 
+
+Katolickému náboženství v obou skupinách vyučovala učitelka slečna Patočková. Evangelickému náboženství učil farář Trojan z Valteřic.
+
+## Inspekce školy
+
+Dne 9. listopadu 1917 podrobil školu prohlídce pan C.K. školní inspektor A. ??? z Nové Paky. Konstatoval, že nalezel školu ve stavu zcela uspokojivém. Při této příležitosti budiž vzpomenuto přízně a opravdového zájmu, který po čas svého úřadování zdejší škole věnoval. 
+
+## Změna v dozoru nad školou
+
+Pan C.K školní inspektor ??? Bažant z Jilemnice ustanoven byl inspektorem školním pro školní okres pardubický. Úřadu ujal se hned počátkem prázdnin 1917. Poněvadž místo jeho v Jílemnici zůstalo neobsazeno do května 1918, úřadoval v jílemnickém školním okrese pan C.K. školní inspektor A. ??? z Nové Paky. Pan inspektor Bažant získal si krásných zásluh o menšinové školy v Novém Světě i ve Vrchlabí. Práce jeho směřovala k zajištění těchto škol a zejména jeho v historii obou škol bude vždy vděčně vzpomenuto. 
+
+V květnu 1918 jmenován byl pro Jilemnicko okresním školním inspektorem pan A. ???, hlavní učitel při učitelském ústavě v Přibrami.
+
+## Patriotické slavnosti
+
+Ve dnech 4. listopadu 1917, 27. dubna a  9. května 1918 přítomni byli žáci slavnostním bohoslužbám. Význam slavnostních těchto dnů byl žactvu přiměřeným způsobem objasněn. 
+
+## Zřízení polévkového ústavu
+
+Řídící učitel R. Turka, jakožto předseda m. odboru Národní Jednoty Severočeské zřídil pro žactvo zdejší školy válečný polévkový ústav. Rozdělováno denně od 5. XI. 1917 do ??? 1918 až 60 porcí polévek. Celkový náklad činil skoro 1500 K. Na úhradu dostalo se m. odb. Národní Jednoty Severočeské 200K od C.K. okresního hejtmanství ve Vrchlabí, 200 K od místodržitelství a 150 K od ústředního výboru Národní Jednoty Severočeské v Praze. 
+
+Ostatní opatřeno od šlechetných příznivců školy.
+
+Vedle této akce rozvíjela se činnosti m. o. Národní Jednoty Severočeské i ve směru podpůrném. V celé řadě případů, kdy jednalo se o okamžité ??? bídy a hladu českých rodinách, vydatně pomáháno bylo peněžitými podporami a dle možnosti i potravinami.
+
+## Zpověď a přijímání
+
+Žáci byli ve dnech 17. a 18. 
 
